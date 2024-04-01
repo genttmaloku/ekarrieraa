@@ -10,3 +10,5 @@
 ![2k48](https://github.com/genttmaloku/ekarrieraa/assets/121188583/7974a149-ca85-40b1-9b1b-06e9453cf40c)
 
 ![Screenshot 2024-03-31 221137](https://github.com/genttmaloku/ekarrieraa/assets/121188583/bb4a31e9-0571-461a-8875-4a7e479120a3)
+
+![Screenshot 2024-03-31 230233](https://github.com/genttmaloku/ekarrieraa/assets/121188583/be14fb07-3cca-49e5-aee4-33574742c1e7)
